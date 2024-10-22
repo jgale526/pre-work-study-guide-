@@ -1,2 +1,2 @@
-# pre-work-study-guide--
+# pre-work-study-guide-
 Summary of Pre-work unit 
